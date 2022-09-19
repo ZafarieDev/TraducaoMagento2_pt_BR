@@ -1,0 +1,1 @@
+# TraducaoMagento2_pt_BR
